@@ -26,5 +26,5 @@
 ## Zielrichtung
 - **Medien:** Film, Serie, Werbung. **Kein Theater.**
 - **Märkte:** Englischsprachig (Priorität), DACH, Italien/Spanien; Schweiz für Werbung
-- **Wunschrollen:** Outer-Banks-Universum (z. B. Sophie, Rafes Freundin), Action (Lara-Croft-Typ)
+- **Wunschrollen:** Outer-Banks-Universum (z. B. Sofia, Rafes Freundin), Action (Lara-Croft-Typ)
 - **Werte:** nur Projekte, die sie moralisch vertreten kann; lieber inspirierende Geschichten. Schauspiel soll nicht die einzige Einnahmequelle sein.

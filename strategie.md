@@ -5,6 +5,14 @@ Viele Castings, keine Buchung = Zugang ist da, **Umwandlung** fehlt. Bevor wir n
 herausfinden, woran es scheitert (Typ-Passung? Self-Tape-Qualität? Rollenwahl der Agentur?).
 → Liste der Castings vom letzten Jahr: Rolle, Format, Self-Tape/vor Ort, Callback ja/nein, Feedback.
 
+## Update nach Sichtung des Filmmakers-Profils (19.11.2026)
+- **Größter versteckter Trumpf:** Schweizer + nordmazedonischer Pass, EU-Arbeitserlaubnis, Balkansprachen
+  muttersprachlich/fließend, amerikanischer Akzent, US-Training (NYFA, Michelle Danner).
+  Englischsprachige Serien/Filme besetzen ständig osteuropäische/Balkan-Figuren – sie kann sie *echt* spielen.
+- **Größte Lücke:** Das Reel zeigt nichts davon. Eine deutsche Arzt-Szene, keine Action, kein Englisch.
+  Action/Martial Arts steht als Spezialisierung im Profil, ist aber nirgends zu sehen.
+- **Kein einziger Film-/TV-Credit** gelistet → Studentenfilme/Kurzfilme sind Priorität 1.
+
 ## Säule 1 – Typ & Schubladen (Januar 2027)
 Drei klare „Lanes“ definieren, statt „alles zeigen“:
 1. **Action/physisch** – Ermittlerin, Soldatin, Agentin, Sportlerin (Athletik als Alleinstellung)
